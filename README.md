@@ -8,7 +8,7 @@ https://github.com/alirezadehbozorgi83
 
 https://www.linkedin.com/in/alireza-dehbozorgi-8055702a/
 
-Twitter & Mastadon: :link: @BDehbozorgi83 
+Twitter:link: @BDehbozorgi83 
 
 :e-mail: alirezadehbozorgi83@yahoo.com 
 
